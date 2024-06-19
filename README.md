@@ -1,1 +1,1 @@
-I like to build something
+Highly motivated & easy to work with!
